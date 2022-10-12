@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Bekzod 
-- 👀 I’m interested in doing new things 
+- 👀 I’m interested in making new things 
 - 🌱 I’m currently learning English and Android devolopment
 - 📫 How to reach me / twitter or telegram @bekzodxs
 
